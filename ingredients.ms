@@ -1,0 +1,1 @@
+boil potato, green piece, capsicum, carrot, french beans, tomato, cabbage,ginger garlic paste, red chilli powder, garam masala , salt, maggi magic masala, bread crumbs.
